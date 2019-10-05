@@ -1,2 +1,3 @@
 # Mango-Yellow
-myself is me and I myself am me because myself is me
+If you focus on the results, you will never change. If you focus on the change, you will get the results.
+Thanks,.
